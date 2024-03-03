@@ -50,7 +50,7 @@ Warning 🚦 This Tool Formates (WhatsApp Otp Lock) So think and Use.
 ``(Tap To Redirect)``
 
 [![Github](https://img.shields.io/badge/Instagram-INSTAGroup-blue?style=for-the-badge&logo=instagram)](https://ig.me/j/DKKX)
-[![Github](https://img.shields.io/badge/Instagram-INSTAPAGE-blue?style=for-the-badge&logo=instagram)](https://instagram.com/S1R4L1)
+[![Github](https://img.shields.io/badge/Instagram-INSTAPAGE-blue?style=for-the-badge&logo=instagram)](https://instagram.com/S1R_4L1)
 [![Github](https://img.shields.io/badge/TELEGRAM-TgGroup-orange?style=for-the-badge&logo=telegram)](https://t.me/+H4CK3RALI)
 
 <h3 style="color:purple"> THANKS FOR USING OUR TOOL </h3>
